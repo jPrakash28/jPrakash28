@@ -34,7 +34,7 @@
 
 ## 📫 Let's Connect
 
-- ✉️ Email: joshua_robert@yahoo.com  
+- ✉️ Email: josh.prakash28@gmail.com
 - 🌐 Portfolio: Coming soon
 - LinkedIn: www.linkedin.com/in/joshua-prakash
 
